@@ -75,8 +75,6 @@ The game also features an official music track:
 If you enjoy indie games, dark storytelling, or creative projects like BLOODMONEY!,
 check out my website:
 
-🌐 https://your-website-url.com
-
 On my site, you’ll find:
 
 Indie game recommendations
